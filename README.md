@@ -1,5 +1,6 @@
 ## Hi there 
-![ChatGPT Image 21 jun 2025, 09_52_13 p m](https://github.com/user-attachments/assets/02cb4187-f1d1-414c-8f7a-3a475d662353)
+![convertir esta image](https://github.com/user-attachments/assets/c209aead-5180-4f30-954b-a5090ecc570c)
+
 <!--
 **Valenvelez18/Valenvelez18** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
