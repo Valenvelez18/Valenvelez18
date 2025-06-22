@@ -1,4 +1,4 @@
-![convertir esta image](https://github.com/user-attachments/assets/c209aead-5180-4f30-954b-a5090ecc570c)
+![tamaño corregido](https://github.com/user-attachments/assets/cc4e6d8f-2cea-42ca-8bd4-39a3e96967ce)
 
 ## ✨ Sobre mí
 
