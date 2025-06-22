@@ -1,4 +1,3 @@
-Hola
 ![convertir esta image](https://github.com/user-attachments/assets/c209aead-5180-4f30-954b-a5090ecc570c)
 
 ## ✨ Sobre mí
