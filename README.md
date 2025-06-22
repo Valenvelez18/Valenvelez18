@@ -26,11 +26,3 @@ Además, fortalecí mis habilidades de:
 - 🧠 Resolución de problemas  
 - 🗣️ Comunicación efectiva de hallazgos
 
-## 🚀 Lo que busco
-
-Estoy en constante búsqueda de proyectos en los que el **análisis de datos** sea clave para:
-
-- 🧠 Tomar decisiones más inteligentes  
-- 💥 Generar impacto positivo en las personas y organizaciones  
-- 🤝 Aportar desde mi experiencia en salud y mi formación analítica
-
