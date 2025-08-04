@@ -1,5 +1,3 @@
-![tamaño corregido](https://github.com/user-attachments/assets/cc4e6d8f-2cea-42ca-8bd4-39a3e96967ce)
-
 ## ✨ Sobre mí
 
 Apasionada por el cuidado de las personas y por entender cómo los datos pueden transformar realidades. 🧠📊  
